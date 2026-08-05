@@ -5168,6 +5168,16 @@ I had such a great experience at OrangeTwist Lakewood! I went in to inquire abou
 
 David Lehman
 
+I just wanna say every time I go in there. If it's morning afternoon, the staff is always. So welcoming, so chipper, and happy. I love all the women that greet me every time I go in and the services t…
+
+Read full review
+
+I just wanna say every time I go in there. If it's morning afternoon, the staff is always. So welcoming, so chipper, and happy. I love all the women that greet me every time I go in and the services they offer are so awesome. I haven't had not one complaint. I could honestly say I found my happy spot.
+
+— LORI SANCHEZ
+
+LORI SANCHEZ
+
 I had an amazing Hydrafacial experience and couldn't be happier with the results. From the moment I arrived, Taylor took the time to truly understand my skin, my concerns, and what my face needed. The…
 
 Read full review
@@ -5191,16 +5201,6 @@ Patricia Moreno
 10/10 recommend Stephanie ! I was late she still got me in. Didn’t rush through anything, was very thorough, & so nice. Probably my least painful treatment too!
 
 Paige Lo
-
-My experience at Orange Twist was absolutely phenomenal. From the moment I walked in I was greeted by the manager Valeria with a warm welcoming and a smile and she even offered me a beverage while I w…
-
-Read full review
-
-My experience at Orange Twist was absolutely phenomenal. From the moment I walked in I was greeted by the manager Valeria with a warm welcoming and a smile and she even offered me a beverage while I waited in the lobby. I went in for a hydra-facial (my first one) so I didn’t know what to expect but Taylor made me feel so comfortable. She is absolutely amazing and very knowledgeable. My skin looks and feels incredible and I definitely felt pampered and relaxed. I will be returning to Orange Twist for more facials and services! 10/10 I would recommend 🤍
-
-— Janize Montoya
-
-Janize Montoya
 
 I had the best experience getting the Glo2 facial with Ashley. The staff was so warm and welcoming. The space itself is beautiful and calming, and the facial bed was genuinely so cozy, they warm it u…
 
@@ -5356,6 +5356,16 @@ First time at OrangeTwist and I wasnt sure what to expect. The whole staff was s
 
 siemone
 
+I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will …
+
+Read full review
+
+I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will be going back for more treatments.
+
+— Ingrid Morgan
+
+Ingrid Morgan
+
 These women are just amazing and do everything they can to make this as easy and wonderful an appt as possible.
 
 Jamie Neal
@@ -5369,16 +5379,6 @@ Read full review
 — Melissa Magallanes
 
 Melissa Magallanes
-
-I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will …
-
-Read full review
-
-I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will be going back for more treatments.
-
-— Ingrid Morgan
-
-Ingrid Morgan
 
 Ashley Paz at OrangeTwist is truly my favorite nurse and an absolute standout in her field. She is incredibly skilled, knowledgeable, and thoughtful in everything she does. I’ve received Botox, Dyspor…
 
@@ -10742,6 +10742,16 @@ I had such a great experience at OrangeTwist Lakewood! I went in to inquire abou
 
 David Lehman
 
+I just wanna say every time I go in there. If it's morning afternoon, the staff is always. So welcoming, so chipper, and happy. I love all the women that greet me every time I go in and the services t…
+
+Read full review
+
+I just wanna say every time I go in there. If it's morning afternoon, the staff is always. So welcoming, so chipper, and happy. I love all the women that greet me every time I go in and the services they offer are so awesome. I haven't had not one complaint. I could honestly say I found my happy spot.
+
+— LORI SANCHEZ
+
+LORI SANCHEZ
+
 I had an amazing Hydrafacial experience and couldn't be happier with the results. From the moment I arrived, Taylor took the time to truly understand my skin, my concerns, and what my face needed. The…
 
 Read full review
@@ -10765,16 +10775,6 @@ Patricia Moreno
 10/10 recommend Stephanie ! I was late she still got me in. Didn’t rush through anything, was very thorough, & so nice. Probably my least painful treatment too!
 
 Paige Lo
-
-My experience at Orange Twist was absolutely phenomenal. From the moment I walked in I was greeted by the manager Valeria with a warm welcoming and a smile and she even offered me a beverage while I w…
-
-Read full review
-
-My experience at Orange Twist was absolutely phenomenal. From the moment I walked in I was greeted by the manager Valeria with a warm welcoming and a smile and she even offered me a beverage while I waited in the lobby. I went in for a hydra-facial (my first one) so I didn’t know what to expect but Taylor made me feel so comfortable. She is absolutely amazing and very knowledgeable. My skin looks and feels incredible and I definitely felt pampered and relaxed. I will be returning to Orange Twist for more facials and services! 10/10 I would recommend 🤍
-
-— Janize Montoya
-
-Janize Montoya
 
 I had the best experience getting the Glo2 facial with Ashley. The staff was so warm and welcoming. The space itself is beautiful and calming, and the facial bed was genuinely so cozy, they warm it u…
 
@@ -10930,6 +10930,16 @@ First time at OrangeTwist and I wasnt sure what to expect. The whole staff was s
 
 siemone
 
+I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will …
+
+Read full review
+
+I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will be going back for more treatments.
+
+— Ingrid Morgan
+
+Ingrid Morgan
+
 These women are just amazing and do everything they can to make this as easy and wonderful an appt as possible.
 
 Jamie Neal
@@ -10943,16 +10953,6 @@ Read full review
 — Melissa Magallanes
 
 Melissa Magallanes
-
-I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will …
-
-Read full review
-
-I received a service at Orange Twist Summerlin today and I am extremely happy with the technique and results. Nurse Aryelle and Manager Amanda are both really nice friendly and professional. I will be going back for more treatments.
-
-— Ingrid Morgan
-
-Ingrid Morgan
 
 Ashley Paz at OrangeTwist is truly my favorite nurse and an absolute standout in her field. She is incredibly skilled, knowledgeable, and thoughtful in everything she does. I’ve received Botox, Dyspor…
 
